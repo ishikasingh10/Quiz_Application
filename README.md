@@ -85,4 +85,9 @@ MIT License
 
 ---
 
+## Contact 
+For any inquiries or feedback , please reach out to me at https://www.linkedin.com/in/ishika-singh-294980285?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app
+
+
+---
 Enjoy learning and have fun! 🎉
